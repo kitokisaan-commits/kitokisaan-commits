@@ -11,4 +11,4 @@ I work remotely  and i like travelling a lot.
 
 - 📍 &nbs; Current location Tashkent, Uzbekistan
 - 📝&nbs; Ask me anything, Always happy to help😉!
-- 📧&nbs; How to reach me: Tg:(https://t.me/Diheartman00) Insta:(https://instagram.com/ismoilovshaxriyor2)
+- 📧&nbs; How to reach me: Tg:(https://t.me/Dieheartman00) Insta:(https://instagram.com/ismoilovshaxriyor2)
